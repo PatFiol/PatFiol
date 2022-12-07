@@ -5,6 +5,7 @@ Before a photographer, now a web developer and always creative.
 👀 I’m currently focusing on learning more about frontend, but the more I get into the backend the more I like it.
 
 💞️ I’m open to collaborate on with anybody. My aim is getting inspiration and also inspire others. 
+
 Making ideas happen feels like the best challenge to me. 
 
 
